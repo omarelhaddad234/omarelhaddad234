@@ -21,9 +21,8 @@ Here are the technologies I work with:
 
 ## 📺 Social Media
 - YouTube: [Omar YT](https://youtube.com/@omar-yt-7?si=CQqvYE6dkIKl5p01)  
-- Facebook: [Omar Elhaddad](https://www.facebook.com/OmarElhaddad)  
 
 ---
 
 ## ⚡ Fun Fact
-I ❤️ coding, gaming 🎮 and sharing knowledge!
+I ❤️ coding, gaming 🎮 and sharing knowledge!  / https://youtube.com/@omar-yt-7?si=CQqvYE6dkIKl5p01
